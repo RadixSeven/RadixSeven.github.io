@@ -12,7 +12,7 @@ Too many people dead
 There are too many people dead from guns in the USA. Something needs
 to change. However, there are vastly different and irreconcilable
 ideas about how to change. Each party says that their plan will reduce
-gun deathsand that the other party's plan will bring the
+gun deaths and that the other party's plan will bring the
 apocalypse. No one can enact their plan beause it is opposed by the
 other party.
 
