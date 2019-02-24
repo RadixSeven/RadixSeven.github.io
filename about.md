@@ -26,4 +26,4 @@ my own opinions only.
 
 ### Contact me
 
-[eric_moyer@yahoo.com](mailto:eric_moyer@yahoo.com)
+[compu.moyer@gmail.com](mailto:compu.moyer@gmail.com)
